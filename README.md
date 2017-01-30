@@ -49,6 +49,7 @@
 * Car charger & cellphone suction-cup mount (if a long car trip)
 * Empty water bottle for plane
 * USB stick
+* Food to eat while traveling
 
 
 ## Things you might forget to *do* before traveling
